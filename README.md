@@ -6,9 +6,9 @@
 
 ## 소통 채널
 * https://open.kakao.com/o/gLhT8mWb (매탄동연합: 카카오채널)
-* https://cafe.naver.com/mt1234love (매탄동연합: 네이버카페)
+* https://m.cafe.naver.com/mt1234love (매탄동연합: 네이버카페)
 * https://m.cafe.naver.com/suwon3line (수서3호선: 매탄동연장 추진연합)
-* https://naver.me/GOuCEJ62 (수서3호선: 수원연장 추진위원회)
+* https://m.cafe.naver.com/brown6lcxc (수서3호선: 수원연장 추진위원회)
 
 ## Contacts
 * maetanline3@gmail.com
